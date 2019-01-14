@@ -6,3 +6,4 @@
 
 酷安 http://www.coolapk.com/u/545518
 
+APP https://www.coolapk.com/apk/nico.styTool
