@@ -25,7 +25,7 @@
 
 [网易云音乐](https://music.163.com/#/user/home?id=323389979)
 
-[颜咚Main酷安](http://www.coolapk.com/u/545518)
+[酷安](http://www.coolapk.com/u/545518)
 
 [App](https://www.coolapk.com/apk/nico.styTool)
 
