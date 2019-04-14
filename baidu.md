@@ -22,7 +22,7 @@
 
 颜咚Main酷安 http://www.coolapk.com/u/545518)
 
- App https://www.coolapk.com/apk/nico.styTool)
+App https://www.coolapk.com/apk/nico.styTool)
 
 颜咚官方鹅群 : 455294159
 ```
