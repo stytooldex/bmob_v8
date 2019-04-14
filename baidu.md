@@ -29,7 +29,7 @@
 
 [App](https://www.coolapk.com/apk/nico.styTool)
 
-颜咚官方鹅群 : 455294159
+[颜咚官方鹅群 : 455294159 ](https://jq.qq.com/?_wv=1027&k=5UILrLB)
 ```
 @2016-2019
 ``` 
