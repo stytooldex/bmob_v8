@@ -25,8 +25,6 @@
 [App](https://www.coolapk.com/apk/nico.styTool)
 
 颜咚官方鹅群 : 455294159
-
-# 
 ```
 @2016-2019
 ``` 
