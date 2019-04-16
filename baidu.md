@@ -1,3 +1,5 @@
+[点我下载最后正版](https://nico-1.oss-cn-beijing.aliyuncs.com/app-release.apk)
+
 在每个版本中,会优化及调整(功能/主页) 遵守用户安全
 ```
 1.软件无大厂广告
