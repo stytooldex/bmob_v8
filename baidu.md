@@ -1,4 +1,4 @@
-![网络图片](http://nico-1.oss-cn-beijing.aliyuncs.com/%E6%9C%AA%E6%A0%87%E9%A2%98-1.jpg)
+![网络图片](http://nico-1.oss-cn-beijing.aliyuncs.com/%E5%B9%BF%E5%91%8A%E5%9B%BE%E7%89%87.png)
 
 [点我下载最后正版](https://github.com/stytooldex/bmob_v8/blob/master/commits.md)
 
