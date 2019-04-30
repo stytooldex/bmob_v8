@@ -1,4 +1,4 @@
-![Image text](http://nico-1.oss-cn-beijing.aliyuncs.com/%E6%9C%AA%E6%A0%87%E9%A2%98-1.jpg)
+[](http://nico-1.oss-cn-beijing.aliyuncs.com/%E6%9C%AA%E6%A0%87%E9%A2%98-1.jpg)
 
 [点我下载最后正版](https://github.com/stytooldex/bmob_v8/blob/master/commits.md)
 
